@@ -1,1 +1,1 @@
-link chạy :https://phamvulinh18.github.io/crush4/
+link chạy :https://LongK-16112000.github.io/LuvQA/
